@@ -1,3 +1,5 @@
 # This project is awesome :3
-insert specifications here 
-be awesome
+
+We do good things in this club!
+
+Orlando Batista
